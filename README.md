@@ -1,0 +1,1 @@
+# amotan2.github.io
